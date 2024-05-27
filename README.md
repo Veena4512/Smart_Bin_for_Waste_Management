@@ -1,0 +1,1 @@
+# Smart_Bin_for_Waste_Management
